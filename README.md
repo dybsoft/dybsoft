@@ -1,1 +1,1 @@
-<h1>적토마는 홍당무가 없어도 잘 달린다.</h1>
+<h1>Do your best, and God will do the rest.</h1>
